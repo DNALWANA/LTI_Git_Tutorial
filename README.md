@@ -28,6 +28,7 @@
 
 - [Lintang Yoga Wistara](https://github.com/linseayw) `[S.E. Assitant of LTI, 2025/2026 - LIN]`
 
+- [Zahra Afdina](https://github.com/waina01) `[S.E. Assitant of LTI, 2025/2026 - WAI]`
 
 ---
 
